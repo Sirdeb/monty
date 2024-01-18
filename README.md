@@ -1,0 +1,1 @@
+All projectson stacks,querie
